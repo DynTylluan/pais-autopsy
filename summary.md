@@ -62,3 +62,10 @@ As stated at the start of this overview, when it comes to the report, most thing
 **End opinions**
 
 This concludes my highlights of the report, as I stated at the start of this report, if you have been following the news revolving around Sol Pais, then the autopsy report document should not hold anything all that suppressing, but it is still interesting to read and review, as you can get an insight glimpse into the details of Pais' death.
+
+**References**
+1. [Suspect found in Denver-area hunt for potential threat to schools: what we know](https://www.vox.com/2019/4/17/18411991/denver-manhunt-columbine-schools-closed-sol-pais)
+2. [Sol Pais, woman "infatuated with Columbine," found dead after apparent suicide near base of Mount Evans](https://www.denverpost.com/2019/04/17/sol-pais-columbine-woman-dead/)
+3. ["Massive manhunt" underway for Florida woman "infatuated with Columbine" now armed with shotgun in Colorado](https://www.denverpost.com/2019/04/16/jefferson-county-schools-lockout)
+4. [Sol Pais: Denver school threat suspect found dead](https://www.bbc.co.uk/news/av/world-us-canada-47969038/sol-pais-denver-school-threat-suspect-found-dead)
+5. ['Columbine-obsessed' woman accused of Denver school threats found dead](https://www.bbc.co.uk/news/world-us-canada-47969359)
